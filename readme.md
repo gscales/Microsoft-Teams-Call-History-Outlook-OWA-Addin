@@ -48,4 +48,4 @@ URL-
 
   https://gscales.github.io/TeamsCallHistory/TeamsCallHistory.xml
 
-![](C:\Users\gscal\OneDrive\Pictures\addin3.JPG)
+!![](https://1.bp.blogspot.com/-fV2Wxo0Cr7Q/XIHvqow9SVI/AAAAAAAACTM/Vo-Pc3Q74AgZ-_KNh_Nl9UhZmBbouJS1wCLcBGAs/s1600/addin3.JPG)
